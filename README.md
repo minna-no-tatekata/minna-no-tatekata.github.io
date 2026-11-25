@@ -1,0 +1,1 @@
+# minna-no-tatekata.github.io
